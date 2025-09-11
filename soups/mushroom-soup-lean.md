@@ -14,7 +14,6 @@
 - **Fresh parsley** chopped, for garnish
 - **Crusty bread** for serving
 
-
 ## Instructions
 
 1. **Prepare the Mushrooms:**
